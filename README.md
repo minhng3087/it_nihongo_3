@@ -1,1 +1,1 @@
-# it_nihongo_3
+# Nguyen Gia Minh - 20184152
